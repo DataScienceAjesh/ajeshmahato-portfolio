@@ -47,8 +47,8 @@ Each project includes:
 
 ## Let’s Connect
 
-📧 ajeshmahato12@gmail.com  
-🔗 [LinkedIn](https://www.linkedin.com/in/your-profile)  
+📧 ajesh_mahato1997@outlook.com 
+🔗 www.linkedin.com/in/ajesh-mahato-2152791a3 
 🌐 Portfolio Website (coming soon)
 
 ---
